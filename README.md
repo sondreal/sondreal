@@ -1,1 +1,1 @@
-<img src="https://i.imgur.com/WCw99ex.gif"/>
+<img src="https://github.com/ThePrimeagen/anime/blob/master/blue-chains.png"/>
