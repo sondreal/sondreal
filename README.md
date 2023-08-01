@@ -1,1 +1,1 @@
-<img src="https://i.gifer.com/2DWl.gif"/>
+<img src="https://i.imgur.com/WCw99ex.gif"/>
